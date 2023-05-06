@@ -1,0 +1,1 @@
+# Kırtasiye Otomasyonu_Son
